@@ -18,3 +18,8 @@ I am a high school student as of 2020.
 
 I'm a beginner. If there's anything wrong or something to correct, please feel free to point it out.
 
+I like Pablo Escobar and Riy. 
+I know Escobar is a criminal, but he's just handsome.
+(Of course it's my personal standard.)
+
+Announce that Pablo Escobar has no purpose of praise or glorification.
